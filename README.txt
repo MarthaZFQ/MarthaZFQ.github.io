@@ -1,1 +1,1 @@
-Este es mi curriculum
+Este es mi curriculum.
